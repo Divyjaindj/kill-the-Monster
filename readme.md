@@ -1,0 +1,1 @@
+mam photos cant be added because it cant be dowloaded
